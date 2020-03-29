@@ -4,6 +4,8 @@ Luckily, we have access to the greatest resource of information and knowledge kn
 
 These are just a list of things we can do for the next few weeks to keep ourselves occupied, as well as to give ourselves a break from work - office and house work.
 
+Everything marked with :boy::girl: is something children can do as well.
+
 ## Exercise ##
 Exercise is critical for physical as well as mental well-being. Decide on any regime, but do continue with it.
 Two suggestions here:
@@ -25,6 +27,7 @@ Some of them may require equipment, but if you don't have those, just skip those
 ## Education ##
 
 ### For children (and adults): ###
+:boy::girl: 
 Probably one of the best free resources out there - https://www.khanacademy.org/
 They've got courses across all classes covering various syllabuses, so any school-going child can continue their studies here.
 
@@ -40,16 +43,19 @@ They've got courses across all classes covering various syllabuses, so any schoo
 Tons of videos on youtube are available for any kind of cooking. I'm personally following Tarla Dalal's recipes right now.
 
 ### Reading ###
+:boy::girl: 
 * Finish any books you may have lying around at home
 * If you don't have paper books, then Ebooks or Audiobooks are a good alternative. Most common are of course Google play books and Kindle/Audible, etc.
 Currently audible is also giving out free stories for children.
 * Amazon Prime also includes a 3-month free audible account in India.
 
 ### Origami ###
+:boy::girl:
 A good fun activity to do yourself, and with the kids
 https://origami.me/beginners-guide/
 
 ### Improve your memory ###
+:boy::girl: 
 I just started this a few days back, and I'm already really enjoying it! It's a good mental exercise:
 https://artofmemory.com/start/
 
@@ -58,6 +64,7 @@ https://memoryleague.com/
 
 
 ### Puzzles like Crosswords, Sudoku, etc ###
+:boy::girl: 
 Crosswords:
 The Guardian is a good resource if you want to learn cryptic crosswords
 Start here - https://www.theguardian.com/crosswords/crossword-blog/2011/oct/06/cryptic-crosswords-beginners-hidden-answers
@@ -77,13 +84,15 @@ Some benefits of it:
 https://www.psypost.org/2020/03/daily-meditation-decreases-anxiety-and-improves-cognitive-functioning-in-new-meditators-after-8-weeks-56198 
 
 ### Learn to solve the Rubik's cube! ###
+:boy::girl: 
 Got a cube lying around at home? You now have enough free time to master it, and show off after a few weeks!
 Like most things, this isn't about intelligence - there's a method to it, and practice and hardwork will get you there.
 https://www.youcandothecube.com/solve-it/3-x-3-solution
 
 ### Learn to draw ###
-Learn to sketch solo - https://www.youtube.com/watch?v=ewMksAbgdBI
-A channel that both parents and kids can use to learn to draw - https://www.youtube.com/user/ArtforKidsHub
+:boy::girl: 
+* Learn to sketch solo - https://www.youtube.com/watch?v=ewMksAbgdBI
+* A channel that both parents and kids can use to learn to draw - https://www.youtube.com/user/ArtforKidsHub
 
 ### Learn a new language ### 
 9 places online to learn a new language for free:
