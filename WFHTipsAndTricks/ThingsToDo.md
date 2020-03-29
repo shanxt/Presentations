@@ -63,15 +63,14 @@ Once you get a hang of the 'mind palace' technique, you can train yourself here:
 https://memoryleague.com/ 
 
 
-### Puzzles like Crosswords, Sudoku, etc ###
-:boy::girl: 
-Crosswords:
+### Puzzles like Crosswords, Sudoku, etc ### 
+**Crosswords**
 The Guardian is a good resource if you want to learn cryptic crosswords
 Start here - https://www.theguardian.com/crosswords/crossword-blog/2011/oct/06/cryptic-crosswords-beginners-hidden-answers
 https://www.theguardian.com/crosswords/series/how-to-solve-crosswords
 https://www.theguardian.com/crosswords/series/cryptic-crosswords-for-beginners
 
-Sudoku:
+:boy::girl:**Sudoku:**
 Lots of online sites for this - sudoku.com is a good starting point.
 For kids, you could print one out here - http://www.kidsmathgamesonline.com/sudoku/printableworksheets.html 
 If you don't have a printer, it's pretty easy to quickly make one manually.
