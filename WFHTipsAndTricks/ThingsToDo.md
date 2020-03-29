@@ -9,6 +9,9 @@ Exercise is critical for physical as well as mental well-being. Decide on any re
 Two suggestions here:
 
 ### Yoga ###
+
+(Thank you Deepa for the suggestion!)
+
 30 Days of Yoga at home With Adriene - https://www.youtube.com/watch?v=KWBfQjuwp4E&list=PLui6Eyny-UzzFFfpiil94CUrWKVMaqmkm
 A few videos for children:
 * Yoga For Beginners | Ages 3-5 - https://www.youtube.com/watch?v=CBko9JPMtHs
