@@ -73,9 +73,8 @@ Start here - https://www.theguardian.com/crosswords/crossword-blog/2011/oct/06/c
 https://www.theguardian.com/crosswords/series/how-to-solve-crosswords
 https://www.theguardian.com/crosswords/series/cryptic-crosswords-for-beginners
 
-:boy::girl:
 
-**Sudoku:**
+**Sudoku:** :boy::girl:
 Lots of online sites for this - www.sudoku.com is a good starting point.
 For kids, you could print one out here - http://www.kidsmathgamesonline.com/sudoku/printableworksheets.html 
 If you don't have a printer, it's pretty easy to quickly make one manually.
