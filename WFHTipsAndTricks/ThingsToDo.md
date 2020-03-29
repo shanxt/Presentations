@@ -103,3 +103,10 @@ https://www.youcandothecube.com/solve-it/3-x-3-solution
 9 places online to learn a new language for free:
 https://www.inc.com/larry-kim/9-places-to-learn-a-new-language-online-for-fre.html
 
+
+### Learn to be ambidextrous ### 
+*(Thank you Krishna for this!)*
+
+Have you started wondering why do you use only one hand predominantly, when you have two? 
+Well, now you can stop wondering and start acting - learn to use both! 
+https://www.wikihow.com/Become-Ambidextrous
