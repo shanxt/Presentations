@@ -1,3 +1,9 @@
+# Things to do when stuck at home #
+Since everyone is now going to be at home for an extended period of time, there's a good chance you may get bored quickly.
+Luckily, we have access to the greatest resource of information and knowledge known to humanity - the Internet.
+
+These are just a list of things we can do for the next few weeks to keep ourselves occupied, as well as to give ourselves a break from work - office and house work.
+
 ## Exercise ##
 Exercise is critical for physical as well as mental well-being. Decide on any regime, but do continue with it.
 Two suggestions here:
