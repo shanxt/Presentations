@@ -10,7 +10,8 @@ Two suggestions here:
 
 ### Yoga ###
 30 Days of Yoga at home With Adriene - https://www.youtube.com/watch?v=KWBfQjuwp4E&list=PLui6Eyny-UzzFFfpiil94CUrWKVMaqmkm
-A few videos for children:
+
+:boy::girl: A few videos for children:
 * Yoga For Beginners | Ages 3-5 - https://www.youtube.com/watch?v=CBko9JPMtHs
 * Yoga with Adriene for kids - https://www.youtube.com/watch?v=vMMRb10LtGM 
 * Alo yoga - https://www.youtube.com/watch?v=4ZpkRAcgws4
